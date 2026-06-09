@@ -1,4 +1,4 @@
-# 
+# Elite Kaspersky Total Security extensions for Mac OS | Professional Kaspersky Total Security extensions for PC Windows. Featuring two-factor authentication and traffic analysis — optimized for maximum performance on every platform.
 
 
 
